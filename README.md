@@ -1,0 +1,1 @@
+# nato_adaptation_2022_2024
